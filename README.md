@@ -1,1 +1,8 @@
-# bhainkar_checker
+BHAINKAR CC CHECKER 
+
+OFFICIAL TELEGRAM CC CHECKER BOT CODE OF 
+BHAINKAR GIVEAWAY 🔥 
+
+
+OWNER: @bhainkar
+CHANNEL: https://t.me/bhainkargiveaway
